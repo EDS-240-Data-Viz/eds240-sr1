@@ -1,4 +1,4 @@
-# Pre-course self-reflection (SR #1)
+# Pre-course self reflection (SR #1)
 
 This reflection is a place to introduce yourself, come up with a plan for what you’d like to get out of the class, and roughly outline how you’ll accomplish your goals throughout the quarter. You’ll continue visiting the goals you set for yourself in this assignment throughout the quarter.
 
